@@ -2,4 +2,4 @@
 
 The power of the battlefield
 
-Nadeko a cute
+Nadeko a devil
